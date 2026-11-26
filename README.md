@@ -33,8 +33,7 @@ Google Ads, Meta Ads, LinkedIn Campaign Manager, TikTok Ads, GA4, Google Tag Man
 
 ## Working hours
 
-I work 10:00 to 19:00 IST, which is 04:30 to 13:30 UK time in winter (GMT) and 05:30 to 14:30 in summer (BST).
-
+I work the business hours of the company I join, wherever it is based. I'm based in India.
 ## Contact
 
 📧 kashishsoni.work@gmail.com  
